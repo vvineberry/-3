@@ -5,3 +5,6 @@
 　　　　   ᣟ݂  𓏼 ⎯　　　15 // minor,　　 dont be weird.
 ⠀།| ͜͝  ͜͝⏝ 　　　　　　　   ᣟ݂  𓏼 ⎯　   ᣟ݂  𓏼 ⎯　　   ᣟ݂  𓏼 ⎯　　　   ᣟ݂  𓏼 ⎯　　   ᣟ݂  𓏼 ⎯　　my grammar is so bad even the translator is tired of me
 ㅤ ⏝ㅤ     ᣟ݂  𓏼 ⎯　    ᣟ݂  𓏼 ⎯　ᣟ݂  𓏼 ⎯　hug and cuddle freely exc i put dni/uf/ucf/uid on my profile . 
+𓈒 ⠀𖹭̶⠀⠀𖹭ິ 
+           𝄄︵  thanks for reading, heres cookie for you . ◌͡⠀
+      　ㅤㅤ◟ ͜  　⋮
