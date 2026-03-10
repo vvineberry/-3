@@ -6,7 +6,7 @@
 ⠀།| ͜͝  ͜͝⏝ 　　　　　　　   ᣟ݂  𓏼 ⎯　   ᣟ݂  𓏼 ⎯　　   ᣟ݂  𓏼 ⎯　　　   ᣟ݂  𓏼 ⎯　　 　　　 　　 　　　 　　　　 　 　　 　    ᣟ݂  𓏼 ⎯　　my grammar is so bad even the translator is tired of me
 ㅤ ⏝ㅤ     ᣟ݂  𓏼 ⎯　    ᣟ݂  𓏼 ⎯　ᣟ݂  𓏼 ⎯ 　　　　 　hug and cuddle freely exc i put dni/uf/ucf/uid on my profile . 
 𓈒 ⠀𖹭̶⠀⠀𖹭ິ 
-           𝄄︵   ୭ৎ　── .✦   　 　　　　 hey.... i think i burn the whole kitchen *nervous glup* . ◌͡⠀
+           𝄄︵   ୭ৎ　── .✦   　 　　　hey i think i burn the whole kitchen *nervous glup* . ◌͡⠀
       　ㅤㅤ◟ ͜  　⋮
 ![vinestaff-phighting](https://github.com/user-attachments/assets/67254909-fb6b-4cbe-aa9f-3fe87edf3e11)
    　 　　　　   　 　　　　    　　　　  　　　　 　 　　　　.𖥔 ݁ ˖ t h a n k s  ݁  for  ݁ r e a d i n g
