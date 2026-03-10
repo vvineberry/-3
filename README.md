@@ -8,4 +8,4 @@
 𓈒 ⠀𖹭̶⠀⠀𖹭ິ 
            𝄄︵   ୭ৎ　── .✦   　 　　　　 thanks for reading, heres cookie for you . ◌͡⠀
       　ㅤㅤ◟ ͜  　⋮
-"text/javascript"
+![vinestaff-phighting](https://github.com/user-attachments/assets/67254909-fb6b-4cbe-aa9f-3fe87edf3e11)
