@@ -9,4 +9,4 @@
            𝄄︵   ୭ৎ　── .✦   　 　　　　  　 　　　 　　　　 　  　　　　 　 　　　　 　hey i think i burn the whole kitchen *nervous glup* . ◌͡⠀
       　ㅤㅤ◟ ͜  　⋮
 ![vinestaff-phighting](https://github.com/user-attachments/assets/67254909-fb6b-4cbe-aa9f-3fe87edf3e11)
-   　 　　　　   　 　　　　    　　　　  　　　　 　 　　　　.𖥔 ݁ ˖ t h a n k s  ݁  for  ݁ r e a d i n g
+   　 　　　　   　 　　　　    　　　　  　　　　 　 　　 　　　　 .....　 　　　　 　.𖥔 ݁ ˖ t h a n k s  ݁  for  ݁ r e a d i n g
